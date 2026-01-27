@@ -1,1 +1,0 @@
-# bmjhsn.github.io
